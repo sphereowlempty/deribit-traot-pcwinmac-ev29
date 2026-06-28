@@ -1,4 +1,4 @@
-# 
+# Profissional deribit trading bot plugins for Mac OS | Ultimato deribit trading bot plugins for PC Windows. Featuring análise de momento and pools de liquidez DEX — optimized for maximum performance.
 
 
 
